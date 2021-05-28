@@ -1,1 +1,1 @@
-# output link: https://shreyan-dey-sarkar.github.io/plucking-mangoes/
+output link: https://shreyan-dey-sarkar.github.io/plucking-mangoes/
